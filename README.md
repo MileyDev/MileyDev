@@ -1,5 +1,8 @@
-## Hi there 👋
-
+# Hi there, I'm Micheal 👋
+- Aspiring C#/.NET Developer
+- Learning Microsoft technologies like Azure and Visual Studio
+- Currently working on debugging and foundational certifications
+- Open to junior developer roles and internships
 <!--
 **MileyDev/MileyDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
