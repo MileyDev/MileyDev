@@ -26,6 +26,6 @@ What I’m Looking For:
 
 ### Let’s Connect  
 [GitHub](https://github.com/MileyDev)  
-[LinkedIn]([https://www.linkedin.com/in/micheal-sokoya-0a8461361](https://www.linkedin.com/in/micheal-sokoya-4a3307364?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app))  
+[LinkedIn](https://www.linkedin.com/in/micheal-sokoya-4a3307364?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 **Email**: [sokoyamicheal7@gmail.com](mailto:sokoyamicheal7@gmail.com)
 
